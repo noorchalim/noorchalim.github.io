@@ -1,2 +1,0 @@
-# noorchalim.github.io
-portofolio
